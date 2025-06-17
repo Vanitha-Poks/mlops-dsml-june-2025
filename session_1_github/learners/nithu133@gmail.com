@@ -1,2 +1,2 @@
 Vanitha- Adding my mail
-Creating a request to join
+Request to join
